@@ -1,4 +1,4 @@
-# setup
+branch 2 wowzers 
 
 - Hi, I'm @uc-lewl Will Le
 - I'm interested in video games, drawing, traveling, and cooking.
